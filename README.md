@@ -6,7 +6,7 @@ Original website: [searchlores.com](https://web.archive.org/web/20191022173743/h
 
 ---
 
-![fravia-preview](https://github.com/soxoj/FRAVIA/assets/31013580/f7b61fa5-eadb-4b69-b2ae-a33aec81c253)
+![fravia-preview](https://github.com/soxoj/FRAVIA/assets/31013580/9885bdfc-aad6-4af6-91d7-1e0d903deab7)
 
 ---
 
